@@ -1,0 +1,1 @@
+# mao_aberta_ou_fechada
